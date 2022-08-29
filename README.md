@@ -1,1 +1,3 @@
-# Outdoor-furniture-Online
+# Outdoor Furniture Online
+Amongst our product range are [Outdoor furniture online](https://casahq.ae/), outdoor lounges, garden furniture, poolside furniture, and more in a range of materials. We have products to suit every outdoor space, from a cosy inner city balcony to a sizeable backyard or commercial venue. We even have bits and pieces for inside your home!
+Whether it’s about a patio, balcony or backyard, or even the garden, it’s necessary to create a space that reflects an aesthetically pleasing and comfortable aura. So, to feel the same vibes in style, WoodenStreet presents an exquisite collection of outdoor furniture online in India.
